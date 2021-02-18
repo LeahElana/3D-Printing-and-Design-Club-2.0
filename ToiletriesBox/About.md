@@ -1,1 +1,1 @@
-# This is the folder for the homeless toiletries box initial ideas.
+# This is the folder for the toiletries box initial ideas.
